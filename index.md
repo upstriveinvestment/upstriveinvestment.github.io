@@ -9,6 +9,6 @@ For more details see [Upstrive Investment Distribution Services](https://g.page/
 
 ### Contact
 
-Umesh Yadav
+Umesh Yadav Ji
 C-1073/11, Indira Nagar Main Rd, D Block
 Indira Nagar, Lucknow, Uttar Pradesh 226016
