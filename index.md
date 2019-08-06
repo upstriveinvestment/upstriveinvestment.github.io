@@ -4,7 +4,7 @@ One stop solutions to your investment queries and worries. Contact Umesh for mor
 
 ### Services offered
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+For more details see [Upstrive Investment Distribution Services](https://g.page/UPSTRIVE/).
 
 ### Click below for more details
 https://g.page/UPSTRIVE/
