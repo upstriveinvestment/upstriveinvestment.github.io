@@ -7,7 +7,7 @@ An Investment solutions and distribution services. One stop solutions to your in
 For more details see [Upstrive Investment Distribution Services](https://g.page/UPSTRIVE/).
 
 ### Click below for more details
-https://g.page/UPSTRIVE/
+(https://g.page/UPSTRIVE/)
 
 ### Contact
 Umesh Yadav
