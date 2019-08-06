@@ -1,6 +1,6 @@
 ## Welcome to Upstrive Investment Distribution Services
 
-One stop solutions to your investment queries and worries. Contact Umesh for more details.
+An Investment solutions and distribution services. One stop solutions to your investment queries and worries. Contact Umesh for more details.
 
 ### Services offered
 
