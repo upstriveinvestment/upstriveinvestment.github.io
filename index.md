@@ -6,10 +6,9 @@ An Investment solutions and distribution services. One stop solutions to your in
 
 For more details see [Upstrive Investment Distribution Services](https://g.page/UPSTRIVE/).
 
-### Click below for more details
-[Click](https://g.page/UPSTRIVE/)
 
 ### Contact
+
 Umesh Yadav
 C-1073/11, Indira Nagar Main Rd, D Block
 Indira Nagar, Lucknow, Uttar Pradesh 226016
